@@ -1,7 +1,7 @@
-![logoooo](https://github.com/aimonrauf/OIBSP/assets/111516670/fa9ab0d4-028a-4e65-a3b7-177a8b65d462)
 ![info-01](https://github.com/aimonrauf/OIBSP/assets/111516670/1d6e1824-dc71-45ac-ada5-5dc4aaf89aef)
 ![af_card](https://github.com/aimonrauf/OIBSP/assets/111516670/718aa81b-b06b-4de2-9de9-c373ba4cb568)
 ![af-19](https://github.com/aimonrauf/OIBSP/assets/111516670/951880d8-67c6-45f7-9ff9-fa54aa78c0de)
 ![bure-01](https://github.com/aimonrauf/OIBSP/assets/111516670/54e20d57-0bf0-41ef-88bc-db23b68e1ccd)
 ![bure-02](https://github.com/aimonrauf/OIBSP/assets/111516670/b5b5a6a6-d906-4cf4-a133-dffff3d96b54)
 ![af-20](https://github.com/aimonrauf/OIBSP/assets/111516670/46505974-055b-4cd5-8b8d-7f10797917c0)
+![pou-02](https://github.com/aimonrauf/OIBSP/assets/111516670/48b9ef9c-9a3f-4464-9b21-5f4fab857d10)
